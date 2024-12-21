@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **Data Analysis, Business Analysis, Data Visualisation.**
 
-- 📫 How to reach me **mittanpalak51@gmail.com**
+- 📫 How to reach me **palakmittan009@gmail.com**
 
 
 <h3 align="left">Connect with me:</h3>
